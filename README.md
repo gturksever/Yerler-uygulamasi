@@ -1,0 +1,1 @@
+# Yerler-uygulamasi
